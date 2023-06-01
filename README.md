@@ -1,0 +1,2 @@
+# kaichunlife.github.io
+BLOG
